@@ -1,2 +1,0 @@
-# machalove
-tugas 2
